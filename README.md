@@ -1,0 +1,1 @@
+# WalkingPadR3Hybird-ContentBrief
